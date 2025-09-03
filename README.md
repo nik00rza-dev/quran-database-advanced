@@ -37,4 +37,4 @@
 ---
 
 ساخته شده با ❤️
-[telegramid for support: @nik00653]
+[telegram Id for support: @nik00653]
